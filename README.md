@@ -1,2 +1,2 @@
-# xyz
-open youre fucking eyes
+# CV
+portofolioku
